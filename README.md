@@ -32,3 +32,4 @@ Hi, I'm Gus Lora — a Solution Architect and Digital Transformation Leader pivo
 - 📧 Email: guslora@live.com
 - 🔗 LinkedIn: [linkedin.com/in/guslora](https://linkedin.com/in/guslora)
 https://www.notion.so/gusloracloud/Gus-Lora-Cloud-Architect-Portfolio-Template-290b52c01cbd4c3c88087d96d1391f03?pvs=4
+https://www.notion.so/gusloracloud/Gus-Lora-Cloud-Architect-Portfolio-Template-290b52c01cbd4c3c88087d96d1391f03?pvs=4
